@@ -13,4 +13,4 @@
 
 
 
-#all rights are reserved @charangowdat.
+#all rights are reserved @charangowdat.😉
